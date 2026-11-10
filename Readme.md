@@ -1,0 +1,1 @@
+# Birichi loyiha
